@@ -5,10 +5,16 @@ Fill in your personal information, stage the changes, and commit with a meaningf
 
 * Name: Sarah Jewett
 
-* LSE ID: 201856649 
+* LSE ID: 2i2oi23j
 
 * LSE email address: s.jewett1@lse.ac.uk  
 
 * Programme: PhD Political Science
 
-* (Optional) Personal website: www.sarahjewett.com
+* (Optional) Personal website: www.sarahjewett.sdfksjdflk
+
+
+
+
+dsfljsl;dkfs;dlkfjl;skdf
+
